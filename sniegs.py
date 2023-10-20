@@ -1,0 +1,1 @@
+# uzdevuma risinājums
